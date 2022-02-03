@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @YaySay
+- 👀 I’m interested in learning.
+- 🌱 I’m currently learning everything I can.
+- 💞️ I’m looking to collaborate on anything.
+- 📫 How to reach me guitar_guy_20@hotmail.com
